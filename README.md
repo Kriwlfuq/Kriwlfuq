@@ -1,5 +1,5 @@
 - 👋 Hi dudee, I’m Kriwlfuq. nice to meet u dude
-so if u wanna to know me, it think u should to bought me some rame or another spicy food awokwaokw canda bang. I think we can be friend or collaboration with u guys
+so if u wanna to know me, it think u should to bought me some ramen or another spicy food awokwaokw canda bang. I think we can be friend or collaboration with u guys
 i hope u enjoy to visit my profile.  
 
 
