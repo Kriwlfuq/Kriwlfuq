@@ -8,7 +8,6 @@ I'm just starting out in the world of coding and I'm passionate about learning n
 
 ## My Interests
 
-- 🌶️ Spicy food enthusiast
 - 🍜 Ramen lover
 - 💻 Learning to code
 - 🤝 Making new friends and collaborating
